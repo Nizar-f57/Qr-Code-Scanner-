@@ -22,4 +22,13 @@ you need, when you need it. So why wait? Download QR Code
  
 Scanner today and start scanning!
 
-            <h2>Link Of Download</h2>
+                Link Of Download
+                     👇👇👇
+
+https://play.google.com/store/apps/details?id=qr_code_scanner.scanner
+
+
+               For Any questions Contact
+                     me on Email :
+                       👇👇👇
+                nizarfrajn@gmail.com 
