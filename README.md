@@ -28,7 +28,7 @@ Scanner today and start scanning!
 https://play.google.com/store/apps/details?id=qr_code_scanner.scanner
 
 
-               For Any questions Contact
-                     me on Email :
-                       👇👇👇
-                nizarfrajn@gmail.com 
+            For Any questions Contact
+                   me on Email :
+                     👇👇👇
+              nizarfrajn@gmail.com 
